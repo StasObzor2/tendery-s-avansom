@@ -1,1 +1,0 @@
-# tendery-s-avansom
